@@ -15,4 +15,4 @@ zuDnthykrALRTfY
 �/
 
 P.S.
-You won't need the internet to figure this one out, but the next will for sure require some tool(z) online
+You won't need the internet to figure this one out, but the next will for sure require some toolz online
